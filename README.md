@@ -5,13 +5,13 @@
 
 - 🔭 I’m currently looking for internship starting **July 2023.**
 
-- 👨‍💻 All of my projects are available at [https://yujasmine.github.io/YuChieh/](https://yujasmine.github.io/YuChieh/)
+- 👩‍💻 All of my projects are available at [https://yujasmine.github.io/YuChieh/](https://yujasmine.github.io/YuChieh/)
 
 - 💬 Ask me about **Data Exploring, Cleaning, Manipulating, and Visulization.**
 
 - 📫 How to reach me **jasmine8670@gmail.com**
 
-- ⚡ Fun fact **I was once busking and got €60 in an hour🎶**
+- ⚡ Fun fact **I was once busking and got €60 in an hour by singing.🎶**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
