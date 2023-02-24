@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **jasmine8670@gmail.com**
 
-- ⚡ Fun fact **I was once busking and got €60 in an hour by singing.🎶**
+- ⚡ Fun fact **I once busking and got €60 in an hour by singing.🎶**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
